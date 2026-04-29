@@ -1,4 +1,4 @@
-
+shrink for brainrots Script advanced offers the most advanced shrink for brainrots Script, with instant win and undetectable. Perfect for dominating
 
 
 
